@@ -13,3 +13,6 @@ Other toppings that I prefer, in no particular order:
 * Prosciutto
 But I'm not terribly picky, and if there's pizza around I'll aim for a slice no matter the toppings!
 - - -
+### The most important thing about pizza is:
+There's no right or wrong for toppings. If you like something on your pizza, then you should get a pizza with that on it! Never let anyone make you feel bad about your pizza.
+# Embrace pizza topping diversity!
