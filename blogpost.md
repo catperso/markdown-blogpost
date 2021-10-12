@@ -6,13 +6,15 @@ Pizza is definitely my favourite food! You can put _whatever_ toppings you want 
 
 My all-time favourite option for a pizza: **White Sauce**. Everyone uses the same boring red sauce for pizza, but a nice garlic-y white sauce will mellow out the acidity of the pizza and provide a greater depth of flavour (in my opinion!)
 Other toppings that I prefer, in no particular order:
-* Bacon
-* Pineapple (it belongs on pizza, accept it!)
-* Salami
-* Pepperoncini
-* Prosciutto
++ Bacon
++ Pineapple (it belongs on pizza, accept it!)
++ Salami
++ Pepperoncini
++ Prosciutto
 But I'm not terribly picky, and if there's pizza around I'll aim for a slice no matter the toppings!
-- - -
+* * *
 ### The most important thing about pizza is:
 There's no right or wrong for toppings. If you like something on your pizza, then you should get a pizza with that on it! Never let anyone make you feel bad about your pizza.
 # Embrace pizza topping diversity!
+
+[Click here](https://www.dominos.com/) to order some pizza right now!
